@@ -1,5 +1,3 @@
-# **Curriculum Vitae**
-
 ![Samuel Chastagner](https://pbs.twimg.com/profile_images/1442426892460564484/mMXjyJH6_400x400.jpg)
 
 ### **Samuel CHASTAGNER**
